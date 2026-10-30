@@ -1,2 +1,1 @@
-ㅤ⠀⠀⠀𝒥⠀⠀⠀my⠀*bitch*ㅤisㅤtheㅤㅤㅤㅤ**raddest**ㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-![](https://files.catbox.moe/5srwpm.png)
+![](https://files.catbox.moe/5srwpm.png)ㅤ⠀⠀⠀✦⠀⠀⠀my⠀*bitch*ㅤisㅤtheㅤㅤㅤㅤ[***raddest***]()ㅤㅤㅤ
